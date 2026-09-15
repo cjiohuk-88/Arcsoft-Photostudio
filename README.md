@@ -218,4 +218,4 @@ Arcsoft PhotoStudio is offered as a full free version complete with all features
 Take your photography to the next level with Arcsoft PhotoStudio—download it today and start creating stunning images!
 
 ---
-**Last updated:** 2026-09-14 22:58:01 UTC
+**Last updated:** 2026-09-15 01:21:17 UTC
